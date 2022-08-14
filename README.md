@@ -33,6 +33,4 @@ This local accounts are Password-Protected and the password is: MubyV-XD
 --
 -----------------------------------------------------
 Feel free to ask me in issues if you have any problems :)
-
-Stay safe.
 -----------------------------------------------------
