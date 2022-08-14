@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=ArianFarrokhi&color=green)
+![](https://komarev.com/ghpvc/?username=MubyCO&color=green)
 
 * A powerful file that will DESTROY victim's pc in a few seconds. *
 Discord: D3monZ_Op#2684 <-- :D
