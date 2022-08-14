@@ -2,8 +2,6 @@
 
 *😈 A powerful file that will DESTROY victim's pc! 😈* By: D3monZ_Op#2684 <-- :D
 ------------------------------------------------------
-download latest version: (https://discord.gg/SH9gFcWjXM)
-------------------------------------------------------
 - What this file does:
   - This file spam creates as many (Local User Accounts) as it can, And this will cause So much lag on victim's pc when starting it... (depends on your pc specs)
   - ~grabs victim's token (soon)~
