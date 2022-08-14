@@ -1,6 +1,6 @@
 ![](https://komarev.com/ghpvc/?username=ArianFarrokhi&color=green)
 
-*😈 A powerful file that will DESTROY victim's pc! 😈* By: MubyCO#3957 <-- :D
+*😈 A powerful file that will DESTROY victim's pc! 😈* By: D3monZ_Op#2684 <-- :D
 ------------------------------------------------------
 download latest version: (https://discord.gg/SH9gFcWjXM)
 ------------------------------------------------------
