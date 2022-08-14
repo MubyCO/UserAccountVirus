@@ -19,13 +19,11 @@ https://www.virustotal.com/gui/file/7e3da164cac1c80a2b6211c25baaf0648da80d9940d4
 -----------------------------------------------------
 READ THIS:
 - Do not do this to ANYONE Without their permission! Cuz i am NOT responsible for any of the damages that it might cause
-
-    - So lets just be Careful and Don't cause any "~E M O T I O N A L - D A M A G E~" to each other...
 -----------------------------------------------------
 How to run it?
 
 - Just send the file to victim and make them run it
-- or say its free nitro generator, or free windows activator ;D
+- or say its free nitro generator, or free windows activator or something...
 
 [Make sure to run it for few minutes!!!]
 
